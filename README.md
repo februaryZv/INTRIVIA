@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [Cluster 9] Sejauh Ini 
 [Cluster 9 sangat asik dan seru, apalagi kakak-kakak fasil selalu membimbing adik-adiknya dan sangat terbuka ke adik-adiknya juga responsif] 
+
+## Harapan Kuliah 
+[Harapannya saya bisa menjadi seseorang yang bermanfaat bagi sekitar dan mampu berkembang lebih baik di fakultas ilmu komputer]
